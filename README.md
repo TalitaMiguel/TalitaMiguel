@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Talita. 👋
 
 <div align="center">
   <a href="https://github.com/TalitaMiguel">
